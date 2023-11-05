@@ -1,0 +1,1 @@
+# friz-ai-Shopify-app
